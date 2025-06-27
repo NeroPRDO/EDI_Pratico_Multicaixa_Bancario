@@ -14,6 +14,10 @@
 | Gabriela Harres Rodrigues               | GRR20246215   |
 | João Vítor Kretzschmar                  | GRR20240632   |
 
+
+Link do video: https://youtu.be/yEdCJgo-4HM?si=ikVi9gAhIqydlxFL
+
+
 ---
 
 ## 🎯 Objetivo Geral
